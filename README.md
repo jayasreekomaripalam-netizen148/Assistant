@@ -45,7 +45,7 @@ https://poe.com/invite/8be3a0bfe1684b09bb16ecf66d57e9e9
 
 ## 👩‍💻 Author
 
-* Your Name: jayasree komaripala
+* Your Name: jayasree komaripalam
 
 ---
 
